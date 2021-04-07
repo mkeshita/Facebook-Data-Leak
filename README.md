@@ -1,0 +1,2 @@
+# Facebook-Data-Leak
+👊🏾 In April 2021, a huge collection of personal data containing more than 500 million users was released online. 👎🏿 The biggest threat, if your information is leaked, is phishing and personal harassment. 🔖 This free information is at your disposal.  ⛔️ Its sale is prohibited by other groups and channels. 🧨 Uploading 15 GB of Facebook information. ❌ All information is compressed. 😎 The initial volume without compression is equal to 150 GB. 🤪 The first complete and flawless database in Telegram. 👻 Wait for free download 
